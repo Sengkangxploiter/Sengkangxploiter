@@ -1,4 +1,4 @@
-# TOOLS INI DI BUAT OLEH X.One Tzy
-# KALIAN BISA KUNJUNGI SOSMED KAMI ig lucifer_xrifan
+# TOOLS INI DI BUAT OLEH XOneZy
+# KALIAN BISA KUNJUNGI SOSMED SAYA ig lucifer_xrifan
 # TEAM SENGKANGXPLOITER 
-# Special Thanks to X.ONE TZY
+# Special Thanks to Ntong nb
